@@ -1,6 +1,3 @@
-## User
-Először az alábbiakat kérem tőled: - Vezetett önreflexiós gyakorlatot a „ciszták lelki üzeneteinek” feltárására. - Meditatív módot arra, hogy „beszélgess” a tested tüneteivel (pl. mit üzen a ciszta). - Test- és érzésszintű önvizsgálati módszert (pl. mit tart vissza a test, amit nem mersz kimondani). - Opcionális: egy érzelmi naplóvezetés struktúráját is ide írom, ha lenne mondandód hozzá.
-
 ## ChatGPT
 Köszönöm a pontosítást és a nyitottságot. Az alábbi négy blokkban összegyűjtöttem neked azt a lelki/önreflexiós eszközkészletet, ami gyengéd, mégis mély. Nincs benne spirituális köteleződés, de ha szeretnéd, ráhangolható belsőbb vagy akár transzcendens rétegre is. Mindegyik gyakorlat csendes, egyedül végezhető, nem igényel eszközt.
 
